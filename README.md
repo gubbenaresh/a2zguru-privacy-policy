@@ -1,0 +1,1 @@
+# a2zguru-privacy-policy
